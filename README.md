@@ -5,6 +5,8 @@ China Merchants Securities Recommended Share Record
 
 ## 2018
 
+## 0730 (无)
+
 ## 0727 (无)
 
 ## 0726 (33%)
